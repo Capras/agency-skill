@@ -50,7 +50,7 @@ Describe your situation and mention the skill, or just describe the situation an
 
 
 
-Not a substitute for support
+Not a substitute for therapy or other professional mental health support
 
 This is professional coaching grounded in a book. It is not therapy or medical advice. For burnout with serious symptoms or any crisis, please talk with a qualified professional or someone you trust.
 
