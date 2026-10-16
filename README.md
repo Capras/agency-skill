@@ -34,7 +34,7 @@ This is professional coaching grounded in a book. It is not therapy or medical a
 
 ## About the book and author
 
-*Agency* is by Sara Capra, a principal product manager. [Add book link and your preferred bio.]
+*Agency* is by Sara Capra, a principal product manager. https://www.amazon.com/Agency-Practical-Managers-Confidence-Navigate-ebook/dp/B0HJSR8LB2?ref_=ast_author_mpb 
 
 ## License
 
